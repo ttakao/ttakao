@@ -13,7 +13,7 @@
 - ⚡ Fun fact: ...
 -->
 
-This is Tsukasa Takao.
+This is **Tsukasa Takao** stay in Japan.
 Long time, I'm using Github, but my profile is quite a new.
 
 ## JOBS
