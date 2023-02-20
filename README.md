@@ -18,11 +18,11 @@ Long time, I'm using Github, but my profile is quite a new.
 
 ## JOBS
 - Working for some Enterprise Software company
-- Working for my small company 'Mind Craft Ltd.' Which is electric devices for alternate medicine.<br/>
+- Working for my small company 'Mind Craft Ltd.' Which is a electric devices maker for alternate medicine.<br/>
   If you have interesting for Orgon, Radionics, Rife Therapy, I have some definit answers.
-- Working for my small drone maker on the water 'SeaCat'
-  My major interest is releted professional fishing.
-- Working for internet radio system. 
+- Working for my small drone maker on the water. The company name is 'SeaCat'
+  My major interest is releted to professional fishing.
+- Working for internet radio system.(Under investigation)
 
 ## Interest
-- 
+- Cooking. Now I am leaning how to bake bread.
